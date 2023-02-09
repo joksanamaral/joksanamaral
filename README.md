@@ -1,7 +1,7 @@
 ### Hola que tal, estoy aprendiendo 🙃
 
 
-Here are some ideas to get you started:
+amaral zamora joksan 19211075
 
 - 🔭 Trabajo como tecnico en infomatica 
 - 🌱 Estoy estudiando Tic°s 
@@ -19,4 +19,5 @@ Here are some ideas to get you started:
 |       |                   |                   |                   |                   |            |   |   |   |   |
 |       |                   |                   |                   |                   |            |   |   |   |   |
 |       |                   |                   |                   |                   |            |   |   |   |   |
+
 
