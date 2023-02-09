@@ -9,3 +9,4 @@ Here are some ideas to get you started:
 - 🌱 Estoy estudiando Tic°s 
 - 👯 busco colaborar con mis conocimientos de de tecnico informatico
 - 🤔 Busco ayuda para saber porgramar bien 🙃
+njhbj
